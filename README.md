@@ -1,1 +1,1 @@
-# Marriage-Made-Easy
+# Wedding-Made-Easy
